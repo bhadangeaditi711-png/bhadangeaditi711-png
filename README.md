@@ -109,7 +109,7 @@
 
 📧 **Email:** bhadangeaditi711@gmail.com
 
-💼 **LinkedIn:** *(Add your LinkedIn URL here)*
+💼 **LinkedIn:** *www.linkedin.com/in/aditi-bhadange-bb978b3a7*
 
 ---
 
